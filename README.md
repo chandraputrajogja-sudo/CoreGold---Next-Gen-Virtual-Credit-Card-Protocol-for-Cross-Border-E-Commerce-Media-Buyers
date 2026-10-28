@@ -63,4 +63,4 @@
 
 点击下方链接完成注册，进入后台获取专属费率与多场景高通过率卡段：
 
-🚀 **[点击注册并登录 CoreGold 虚拟卡控制台](https://app.coregold.io/signup?invite_code=ADvlj9b)**
+🚀 **[点击注册并登录 CoreGold 虚拟卡控制台](https://app.coregold.io/signup?invite_code=ADvlj9b)** 
